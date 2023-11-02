@@ -1,1 +1,1 @@
-# boycottzionists.github.io
+# Boycott Zionists
